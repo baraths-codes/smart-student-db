@@ -1,1 +1,1 @@
-![Alt text](https://github.com/username/repo/assets/Screenshot 2025-07-31 230342.png)
+![Alt text](https://github.com/baraths.codes/repo/assets/Screenshot 2025-07-31 230342.png)
